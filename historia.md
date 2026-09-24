@@ -1,0 +1,1 @@
+Eren Yeager activa el fundador para acabar con Dooctor Doom en la Tierra y Eren es comido por Doctor Doom y hereda el fundador.
