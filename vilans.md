@@ -1,3 +1,3 @@
-thanos: guantelete
+thanos: guantelete, gemas
 galactus: gigante
 doctor doom: mafia
